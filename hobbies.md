@@ -1,0 +1,1 @@
+Most of my hobbies revolve around my love of the outdoors. In particular I enjoy participating in non-traditional sports, such as surfing, skateboarding, and snowboarding. I also enjoy hiking and spending time in the outdoors.
